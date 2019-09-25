@@ -1,2 +1,2 @@
 # hello_world
-Testing
+I am an autistic person obsessed with Paleontology and Transformers.
